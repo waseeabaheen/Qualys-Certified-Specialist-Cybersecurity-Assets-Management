@@ -1,0 +1,1 @@
+# Qualys-Certified-Specialist-Cybersecurity-Assets-Management
